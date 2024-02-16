@@ -1,0 +1,1 @@
+![alt text](JJ&COMPANIES_VertiCalBlueLogo(Main).png)
